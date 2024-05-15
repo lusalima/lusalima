@@ -8,4 +8,4 @@ Meu nome é Luana Santos
 
 ### Você pode entar em contato comigo 📬
 lusalima09@gmail.com
-![](https://tenor.com/pt-BR/view/cats-funny-reading-gif-13996638)
+![](https://media.tenor.com/iEb98mMgG0EAAAAM/cats-funny.gif)
